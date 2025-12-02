@@ -1,0 +1,52 @@
+# 乃紫 – 全方向美少女
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Are u ready?
+愛と妬みを足して嘘と涙で割れば
+世にも美しき怪物
+「女の子」の出来上がり
+眉も目も唇も
+好きな様に描き足しな？
+熱い眼差しが無きゃ
+千年の恋も冷めちゃうわ
+運命なんて生まれた日より
+選んだ服で決まるもの
+酸いも甘いもひっくるめ
+今をきっとちゃんと愛してる
+正面で見ても横から見ても
+下から見てもいい女で困っちゃう
+君は全方向美少女 ねぇ困っちゃう
+妬み嫉みも全部愛として受け取るよ
+Eyes on you every time
+I find out you
+You’re the fire or ice
+or sweet sweet dream
+Eyes on you every time
+I find out you
+You’re the music to my eyes
+and sweet sweet dream
+アイラインを跳ね上げ
+天まで届くまつ毛
+ほっぺにバラ咲かせ
+ルージュで嘘を色付けて
+よく人に好かれます
+魅せ方も解ってます
+美しさも愛嬌も天は二物を与えます
+幸福なんて一生をかけて
+一粒一粒集めるもの
+酸いも甘いも味わって
+今をきっとちゃんと愛してね
+正面で見ても横から見ても
+下から見てもいい女で困っちゃう
+君は全方向美少女 ねぇ困っちゃう
+妬み嫉みも全部愛として受け取るよ
+Eyes on you every time
+I find out you
+You’re the fire or ice
+or sweet sweet dream
+Eyes on you every time
+I find out you
+君は全方向美少女
+```
